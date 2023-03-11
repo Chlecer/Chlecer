@@ -1,6 +1,6 @@
 ## Hi there! 👋
 
-I'm Jean-Louis, at the past used Chlecer nickname at metaverse experiences (Second Life! it was a great time!), now only a father and husban prototype and software developer with a passion to make all days a better day.
+I'm Jean-Louis, at the past used Chlecer nickname at metaverse experiences (Second Life! it was a great time!), now only a father and husband prototype and software developer with a passion to make all days a better day.
 
 ### What I'm working on
 
